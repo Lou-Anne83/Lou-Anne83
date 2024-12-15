@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Lou-Anne83
-- 👀 I’m interested in communication and politics
+- 👀 I’m interested in communication and editing videos
 - 🌱 I’m currently learning sciences of information and communication
 - 💞️ I’m looking to collaborate on website development
 - 📫 You can reach me on instagram : @louannerolain
